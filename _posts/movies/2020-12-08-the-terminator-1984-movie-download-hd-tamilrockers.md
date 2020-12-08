@@ -3,7 +3,7 @@ date: 2020-12-08 13:18:51
 layout: movie
 category: movie
 title: The Terminator (1984) Movie Download HD Tamilrockers
-seotitle: The Terminator
+seotitle: Terminator 1
 poster: https://upload.wikimedia.org/wikipedia/en/7/70/Terminator1984movieposter.jpg
 size: 920 MB [Multi]
 year: "1984"
