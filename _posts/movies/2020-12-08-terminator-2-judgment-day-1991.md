@@ -2,7 +2,7 @@
 date: 2020-12-08 13:24:26
 layout: movie
 category: movie
-title: "Terminator 2: Judgment Day (1991)"
+title: "Terminator 2: Judgment Day (1991) Movie Download HD Tamilrockers"
 seotitle: Terminator 2
 poster: https://m.media-amazon.com/images/M/MV5BMGU2NzRmZjUtOGUxYS00ZjdjLWEwZWItY2NlM2JhNjkxNTFmXkEyXkFqcGdeQXVyNjU0OTQ0OTY@._V1_UY1200_CR88,0,630,1200_AL_.jpg
 size: 1.27 GB
