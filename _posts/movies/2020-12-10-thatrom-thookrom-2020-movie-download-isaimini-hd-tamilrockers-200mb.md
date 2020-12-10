@@ -3,7 +3,7 @@ date: 2020-12-10 21:54:11
 layout: movie
 category: movie
 title: Thatrom Thookrom (2020) Movie Download isaimini HD Tamilrockers 200mb
-seotitle: Thatrom Thookrom
+seotitle: Thatrom Thookrom Tamil
 poster: https://extraimages.net/images/2020/12/10/Poster70f94dfdeb92c19e.jpg
 size: 200MB
 year: "2020"
