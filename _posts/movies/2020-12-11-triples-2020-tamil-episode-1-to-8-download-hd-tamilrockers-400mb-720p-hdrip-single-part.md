@@ -3,7 +3,7 @@ date: 2020-12-11 20:39:25
 layout: movie
 category: movie
 title: Triples (2020) Tamil (Episode 1 to 8) Download HD Tamilrockers [400MB]
-  720p HDRip Single Part
+  720p HDRip Single Part [Hotstar]
 seotitle: Triples Tamil
 poster: https://img1.hotstarext.com/image/upload/f_auto,t_web_m_1x/sources/r1/cms/prod/3108/843108-h
 size: 400MB
