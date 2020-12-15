@@ -1,5 +1,5 @@
 ---
-date: 2020-12-15 13:17:38
+date: 2020-12-15 13:20:36
 layout: episode
 title: Magnum PI Season 2 Complete Download 480p All Episode
 seotitle: Magnum PI
