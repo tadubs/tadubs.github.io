@@ -1,7 +1,8 @@
 ---
 date: 2020-12-15 12:21:43
 layout: episode
-title: Money Heist
+title: Money Heist Season 1 Episodes Complete Download 480p & 720p All Episode
+seotitle: Money Heist
 noseason: "1"
 seadi:
   - title: "1"
