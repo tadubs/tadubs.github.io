@@ -2,8 +2,8 @@
 date: 2020-12-15 16:25:42
 layout: torrent
 category: torrent
-title: Star Collections - Ultimate Star Ajith Kumar's - All Movies Mp3 Songs -
-  [HQ ACDRip - 320Kbps - 3GB]
+title: Ultimate Star Ajith Kumar's - All Movies Mp3 Songs - [HQ ACDRip - 320Kbps
+  - 3GB]
 size: 3GB
 type: MP3
 torrent: https://web.archive.org/web/20200119080244/http://tamilrockers.ws/index.php?app=core&module=attach&section=attach&attach_id=6614
