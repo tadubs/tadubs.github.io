@@ -59,7 +59,10 @@
   <body>
 <div class="line">
         <font size="4px">{{ site.name }}</font><br/><small>Name Of Quality</small></div> 
+	  
   {% include searchbox.html %}
+	    {% include sbox.html %}
+
      <div class="line">{{ page.title }} Collections</div>
      
      {% for item in page.coldi %}
