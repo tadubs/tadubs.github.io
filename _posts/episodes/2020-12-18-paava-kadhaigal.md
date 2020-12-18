@@ -1,7 +1,7 @@
 ---
 date: 2020-12-18 04:35:24
 layout: episode
-title: " Paava Kadhaigal"
+title: " Paava Kadhaigal (2020) Movie Download isaimini HD Tamilrockers"
 seotitle: " Paava Kadhaigal"
 noseason: "1"
 seadi:
