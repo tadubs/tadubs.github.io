@@ -15,9 +15,9 @@ coldi:
     url: //stawhoph.com/afu.php?zoneid=3762702
   - title: Get Smart (2008)
     url: //stawhoph.com/afu.php?zoneid=3762702
-  - title: "Race to Witch Mountain (2009):"
+  - title: Race to Witch Mountain (2009)
     url: //stawhoph.com/afu.php?zoneid=3762702
-  - title: "The Other Guys (2010):"
+  - title: The Other Guys (2010)
     url: //stawhoph.com/afu.php?zoneid=3762702
   - title: Faster (2010)
     url: //stawhoph.com/afu.php?zoneid=3762702
