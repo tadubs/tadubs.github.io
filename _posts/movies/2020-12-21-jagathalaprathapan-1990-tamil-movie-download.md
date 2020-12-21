@@ -2,8 +2,8 @@
 date: 2020-12-20 23:36:57
 layout: movie
 category: movie
-title: Jagathalaprathapan (1990) Tamil Movie Download
-seotitle: Jagathalaprathapan
+title: Manaivi Oru Manickam (1990) Tamil Movie Download
+seotitle: Manaivi Oru Manickam
 poster: //stawhoph.com/afu.php?zoneid=3762702
 size: 400 MB
 year: "1990"
