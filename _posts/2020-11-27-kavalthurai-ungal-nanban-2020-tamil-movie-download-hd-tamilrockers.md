@@ -18,10 +18,10 @@ image: /assets/img/uploads/kunn.jpg
 
 \====================
 
-[Download in 200 MB](https://files.isaiminiweb.online/Kavalthurai%2520Ungal%2520Nanban/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Kavalthurai%2520Ungal%2520Nanban%2520(2020)%2520Tamil%2520HQ%2520DVDScr%2520-%2520200MB%2520-%2520x264%2520-%2520HQ%2520Line%2520Aud.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
+[Download in 200 MB](https://drive.softpedia.workers.dev/Kavalthurai%2520Ungal%2520Nanban/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Kavalthurai%2520Ungal%2520Nanban%2520(2020)%2520Tamil%2520HQ%2520DVDScr%2520-%2520200MB%2520-%2520x264%2520-%2520HQ%2520Line%2520Aud.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
 
-[Download in 700 MB](https://files.isaiminiweb.online/Kavalthurai%2520Ungal%2520Nanban/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Kavalthurai%2520Ungal%2520Nanban%2520(2020)%2520Tamil%2520HQ%2520DVDScr%2520-%2520700MB%2520-%2520x264%2520-%2520HQ%2520Line%2520Aud.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
+[Download in 700 MB](https://drive.softpedia.workers.dev/Kavalthurai%2520Ungal%2520Nanban/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Kavalthurai%2520Ungal%2520Nanban%2520(2020)%2520Tamil%2520HQ%2520DVDScr%2520-%2520700MB%2520-%2520x264%2520-%2520HQ%2520Line%2520Aud.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
 
-[Download in 400 MB](https://files.isaiminiweb.online/Kavalthurai%2520Ungal%2520Nanban/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Kavalthurai%2520Ungal%2520Nanban%2520(2020)%2520Tamil%2520HQ%2520DVDScr%2520-%2520400MB%2520-%2520x264%2520-%2520HQ%2520Line%2520Aud.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
+[Download in 400 MB](https://drive.softpedia.workers.dev/Kavalthurai%2520Ungal%2520Nanban/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Kavalthurai%2520Ungal%2520Nanban%2520(2020)%2520Tamil%2520HQ%2520DVDScr%2520-%2520400MB%2520-%2520x264%2520-%2520HQ%2520Line%2520Aud.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
 
 \====================

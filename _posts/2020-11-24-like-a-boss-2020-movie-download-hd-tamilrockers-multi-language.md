@@ -19,9 +19,9 @@ image: /assets/img/uploads/poster.md.jpg
 
 \============================
 
-[Download Server 1 400 MB](https://files.isaiminiweb.online/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Like%2520a%2520Boss%2520(2020)%C2%A0%5BBDRip%2520-%2520%5BTamil%2520%2B%2520Telugu%5D%2520-%2520x264%2520-%2520MP3%2520-%2520450MB%2520-%2520ESubs%5D.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
+[Download Server 1 400 MB](https://drive.softpedia.workers.dev/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Like%2520a%2520Boss%2520(2020)%C2%A0%5BBDRip%2520-%2520%5BTamil%2520%2B%2520Telugu%5D%2520-%2520x264%2520-%2520MP3%2520-%2520450MB%2520-%2520ESubs%5D.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
 
-[](https://files.isaiminiweb.online/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Like%2520a%2520Boss%2520(2020)%C2%A0%5BBDRip%2520-%2520%5BTamil%2520%2B%2520Telugu%5D%2520-%2520x264%2520-%2520MP3%2520-%2520450MB%2520-%2520ESubs%5D.mkv?rootId=0AJtZkTkXLBuYUk9PVA)============================
+[](https://drive.softpedia.workers.dev/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Like%2520a%2520Boss%2520(2020)%C2%A0%5BBDRip%2520-%2520%5BTamil%2520%2B%2520Telugu%5D%2520-%2520x264%2520-%2520MP3%2520-%2520450MB%2520-%2520ESubs%5D.mkv?rootId=0AJtZkTkXLBuYUk9PVA)============================
 
 Keywords:
 

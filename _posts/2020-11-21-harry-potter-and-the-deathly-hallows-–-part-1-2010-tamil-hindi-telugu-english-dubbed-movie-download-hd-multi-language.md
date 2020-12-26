@@ -25,9 +25,9 @@ paginate: false
 
 \=========================
 
-[Download Server 1](https://files.isaiminiweb.online/Harry%2520Potter/Telegram%2520(%40tadubs)%2520Harry%2520Potter%2520and%2520the%2520Deathly%2520Hallows%2520Part%25201%2520(2010)%5B720p%2520-%2520New%2520BDRip%2520-%2520%5BTamil%2520%2B%2520Telugu%2520%2B%2520Hindi%2520%2B%2520Eng%5D%2520%5BTENTROCKERS%5D.mkv?rootId=0AN9zhQ1hps-9Uk9PVA)
+[Download Server 1](https://drive.softpedia.workers.dev/Harry%2520Potter/Telegram%2520(%40tadubs)%2520Harry%2520Potter%2520and%2520the%2520Deathly%2520Hallows%2520Part%25201%2520(2010)%5B720p%2520-%2520New%2520BDRip%2520-%2520%5BTamil%2520%2B%2520Telugu%2520%2B%2520Hindi%2520%2B%2520Eng%5D%2520%5BTENTROCKERS%5D.mkv?rootId=0AN9zhQ1hps-9Uk9PVA)
 
-[](https://files.isaiminiweb.online/Harry%2520Potter/Telegram%2520(%40tadubs)%2520Harry%2520Potter%2520and%2520the%2520Deathly%2520Hallows%2520Part%25201%2520(2010)%5B720p%2520-%2520New%2520BDRip%2520-%2520%5BTamil%2520%2B%2520Telugu%2520%2B%2520Hindi%2520%2B%2520Eng%5D%2520%5BTENTROCKERS%5D.mkv?rootId=0AN9zhQ1hps-9Uk9PVA)=========================
+[](https://drive.softpedia.workers.dev/Harry%2520Potter/Telegram%2520(%40tadubs)%2520Harry%2520Potter%2520and%2520the%2520Deathly%2520Hallows%2520Part%25201%2520(2010)%5B720p%2520-%2520New%2520BDRip%2520-%2520%5BTamil%2520%2B%2520Telugu%2520%2B%2520Hindi%2520%2B%2520Eng%5D%2520%5BTENTROCKERS%5D.mkv?rootId=0AN9zhQ1hps-9Uk9PVA)=========================
 
 **Keywords**:
 

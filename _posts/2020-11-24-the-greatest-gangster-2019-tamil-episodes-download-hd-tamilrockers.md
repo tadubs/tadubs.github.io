@@ -20,25 +20,25 @@ image: /assets/img/uploads/test_pic1604300032472.jpg
 
 \=======================
 
-Episode 01 - [Download](https://files.isaiminiweb.online/The%2520Greatest%2520Gangster/EP-01.mp4?rootId=0AN9zhQ1hps-9Uk9PVA)
+Episode 01 - [Download](https://drive.softpedia.workers.dev/The%2520Greatest%2520Gangster/EP-01.mp4?rootId=0AN9zhQ1hps-9Uk9PVA)
 
-Episode 02 - [Download](https://files.isaiminiweb.online/The%2520Greatest%2520Gangster/EP-02.mp4?rootId=0AN9zhQ1hps-9Uk9PVA)
+Episode 02 - [Download](https://drive.softpedia.workers.dev/The%2520Greatest%2520Gangster/EP-02.mp4?rootId=0AN9zhQ1hps-9Uk9PVA)
 
-Episode 03 - [Download](https://files.isaiminiweb.online/The%2520Greatest%2520Gangster/EP-03.mp4?rootId=0AN9zhQ1hps-9Uk9PVA)
+Episode 03 - [Download](https://drive.softpedia.workers.dev/The%2520Greatest%2520Gangster/EP-03.mp4?rootId=0AN9zhQ1hps-9Uk9PVA)
 
-Episode 04 - [Download](https://files.isaiminiweb.online/The%2520Greatest%2520Gangster/EP-04.mp4?rootId=0AN9zhQ1hps-9Uk9PVA)
+Episode 04 - [Download](https://drive.softpedia.workers.dev/The%2520Greatest%2520Gangster/EP-04.mp4?rootId=0AN9zhQ1hps-9Uk9PVA)
 
-Episode 05 - [Download](https://files.isaiminiweb.online/The%2520Greatest%2520Gangster/EP-05.mp4?rootId=0AN9zhQ1hps-9Uk9PVA)
+Episode 05 - [Download](https://drive.softpedia.workers.dev/The%2520Greatest%2520Gangster/EP-05.mp4?rootId=0AN9zhQ1hps-9Uk9PVA)
 
-Episode 06 - [Download](https://files.isaiminiweb.online/The%2520Greatest%2520Gangster/EP-06.mp4?rootId=0AN9zhQ1hps-9Uk9PVA)
+Episode 06 - [Download](https://drive.softpedia.workers.dev/The%2520Greatest%2520Gangster/EP-06.mp4?rootId=0AN9zhQ1hps-9Uk9PVA)
 
-Episode 07 - [Download](https://files.isaiminiweb.online/The%2520Greatest%2520Gangster/EP-07.mp4?rootId=0AN9zhQ1hps-9Uk9PVA)
+Episode 07 - [Download](https://drive.softpedia.workers.dev/The%2520Greatest%2520Gangster/EP-07.mp4?rootId=0AN9zhQ1hps-9Uk9PVA)
 
-Episode 08 - [Download](https://files.isaiminiweb.online/The%2520Greatest%2520Gangster/EP-08.mp4?rootId=0AN9zhQ1hps-9Uk9PVA)
+Episode 08 - [Download](https://drive.softpedia.workers.dev/The%2520Greatest%2520Gangster/EP-08.mp4?rootId=0AN9zhQ1hps-9Uk9PVA)
 
-Episode 09 - [Download](https://files.isaiminiweb.online/The%2520Greatest%2520Gangster/EP-09.mp4?rootId=0AN9zhQ1hps-9Uk9PVA)
+Episode 09 - [Download](https://drive.softpedia.workers.dev/The%2520Greatest%2520Gangster/EP-09.mp4?rootId=0AN9zhQ1hps-9Uk9PVA)
 
-Episode 10 - [Download](https://files.isaiminiweb.online/The%2520Greatest%2520Gangster/EP-10.mp4?rootId=0AN9zhQ1hps-9Uk9PVA)
+Episode 10 - [Download](https://drive.softpedia.workers.dev/The%2520Greatest%2520Gangster/EP-10.mp4?rootId=0AN9zhQ1hps-9Uk9PVA)
 
 \=======================
 

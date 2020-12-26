@@ -14,13 +14,13 @@ image: /assets/img/uploads/laxmii.png
 
 \=======================
 
-[Download in 400 MB](https://files.isaiminiweb.online/Laxmii/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Laxmii%2520(2020)%2520%5BHDRip%2520-%2520Tamil%2520(Fan%2520Dub)%2520-%2520x264%2520-%2520MP3%2520-%2520400MB%5D.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
+[Download in 400 MB](https://drive.softpedia.workers.dev/Laxmii/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Laxmii%2520(2020)%2520%5BHDRip%2520-%2520Tamil%2520(Fan%2520Dub)%2520-%2520x264%2520-%2520MP3%2520-%2520400MB%5D.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
 
-[Download in 700 MB](https://files.isaiminiweb.online/Laxmii/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Laxmii%2520(2020)%2520%5BHDRip%2520-%2520Tamil%2520(Fan%2520Dub)%2520-%2520x264%2520-%2520MP3%2520-%2520700MB%5D.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
+[Download in 700 MB](https://drive.softpedia.workers.dev/Laxmii/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Laxmii%2520(2020)%2520%5BHDRip%2520-%2520Tamil%2520(Fan%2520Dub)%2520-%2520x264%2520-%2520MP3%2520-%2520700MB%5D.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
 
-[](https://files.isaiminiweb.online/Laxmii/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Laxmii%2520(2020)%2520%5BHDRip%2520-%2520Tamil%2520(Fan%2520Dub)%2520-%2520x264%2520-%2520MP3%2520-%2520700MB%5D.mkv?rootId=0AJtZkTkXLBuYUk9PVA)[Download in 1 GB](https://files.isaiminiweb.online/Laxmii/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Laxmii%2520(2020)%2520%5B720p%2520HDRip%2520-%2520%5BTamil%2520(Fan%2520Dub)%2520%2B%2520Hin%5D%2520-%2520x264%2520-%2520AAC%2520-%25201.2GB%5D.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
+[](https://drive.softpedia.workers.dev/Laxmii/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Laxmii%2520(2020)%2520%5BHDRip%2520-%2520Tamil%2520(Fan%2520Dub)%2520-%2520x264%2520-%2520MP3%2520-%2520700MB%5D.mkv?rootId=0AJtZkTkXLBuYUk9PVA)[Download in 1 GB](https://drive.softpedia.workers.dev/Laxmii/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Laxmii%2520(2020)%2520%5B720p%2520HDRip%2520-%2520%5BTamil%2520(Fan%2520Dub)%2520%2B%2520Hin%5D%2520-%2520x264%2520-%2520AAC%2520-%25201.2GB%5D.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
 
-[](https://files.isaiminiweb.online/Laxmii/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Laxmii%2520(2020)%2520%5B720p%2520HDRip%2520-%2520%5BTamil%2520(Fan%2520Dub)%2520%2B%2520Hin%5D%2520-%2520x264%2520-%2520AAC%2520-%25201.2GB%5D.mkv?rootId=0AJtZkTkXLBuYUk9PVA)=======================
+[](https://drive.softpedia.workers.dev/Laxmii/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Laxmii%2520(2020)%2520%5B720p%2520HDRip%2520-%2520%5BTamil%2520(Fan%2520Dub)%2520%2B%2520Hin%5D%2520-%2520x264%2520-%2520AAC%2520-%25201.2GB%5D.mkv?rootId=0AJtZkTkXLBuYUk9PVA)=======================
 
 
 

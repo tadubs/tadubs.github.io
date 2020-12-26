@@ -24,9 +24,9 @@ image: /assets/img/uploads/fridayfilmhouse-fff_ss_cmp_2020-full-image_gallerybac
 
 \==========================
 
-[Download Server 1](https://files.isaiminiweb.online/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Sufiyum%2520Sujatayum%2520(2020)%2520Malaylaam%2520Proper%2520HDRip%2520x264%2520AAC%2520400MB%2520ESub.mkv?rootId=0APvS4FUVkGTzUk9PVA)
+[Download Server 1](https://drive.softpedia.workers.dev/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Sufiyum%2520Sujatayum%2520(2020)%2520Malaylaam%2520Proper%2520HDRip%2520x264%2520AAC%2520400MB%2520ESub.mkv?rootId=0APvS4FUVkGTzUk9PVA)
 
-[](https://files.isaiminiweb.online/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Sufiyum%2520Sujatayum%2520(2020)%2520Malaylaam%2520Proper%2520HDRip%2520x264%2520AAC%2520400MB%2520ESub.mkv?rootId=0APvS4FUVkGTzUk9PVA)==========================
+[](https://drive.softpedia.workers.dev/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Sufiyum%2520Sujatayum%2520(2020)%2520Malaylaam%2520Proper%2520HDRip%2520x264%2520AAC%2520400MB%2520ESub.mkv?rootId=0APvS4FUVkGTzUk9PVA)==========================
 
 
 Keywords:

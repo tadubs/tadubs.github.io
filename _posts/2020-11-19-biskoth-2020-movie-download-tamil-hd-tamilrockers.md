@@ -36,11 +36,11 @@ image: /assets/img/uploads/maxresdefault.jpg
 
 \===========================
 
-[Download in 400 MB](https://drive.unblocked.workers.dev/Biskoth/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Biskoth%2520(2020)%2520Tamil%2520HD-%2520400MB-ESub.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
+[Download in 400 MB](https://drive.softpedia.workers.dev/Biskoth/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Biskoth%2520(2020)%2520Tamil%2520HD-%2520400MB-ESub.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
 
-[Download in 700 MB](https://drive.unblocked.workers.dev/Biskoth/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Biskoth%2520(2020)%2520Tamil%2520HD-700MB-ESub.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
+[Download in 700 MB](https://drive.softpedia.workers.dev/Biskoth/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Biskoth%2520(2020)%2520Tamil%2520HD-700MB-ESub.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
 
-[](https://drive.unblocked.workers.dev/Biskoth/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Biskoth%2520(2020)%2520Tamil%2520HD-700MB-ESub.mkv?rootId=0AJtZkTkXLBuYUk9PVA)[](https://tinyurl.com/y5dq7rwa)[](https://drive.unblocked.workers.dev/Torrent/www.1TamilMV.live%2520-%2520Biskoth%2520(2020)%2520Tamil%2520HQ%2520PreDVD%2520-%2520700MB%2520-%2520x264%2520-%2520HQ%2520Line%C2%A0Aud%2520-%2520MP3.mkv)===========================
+[](https://drive.softpedia.workers.dev/Biskoth/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Biskoth%2520(2020)%2520Tamil%2520HD-700MB-ESub.mkv?rootId=0AJtZkTkXLBuYUk9PVA)[](https://tinyurl.com/y5dq7rwa)[](https://drive.softpedia.workers.dev/Torrent/www.1TamilMV.live%2520-%2520Biskoth%2520(2020)%2520Tamil%2520HQ%2520PreDVD%2520-%2520700MB%2520-%2520x264%2520-%2520HQ%2520Line%C2%A0Aud%2520-%2520MP3.mkv)===========================
 
 Keywords:
 

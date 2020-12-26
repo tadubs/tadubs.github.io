@@ -11,11 +11,11 @@ image: /assets/img/uploads/soorarai-pottru-trailer.jpg
 ---
 \=====================
 
-[Download 400 MB](https://drive.unblocked.workers.dev/Soorarai%2520Pottru/Soorarai%2520Pottru%2520(2020)%2520400MB%2520%5BTentrockers%5D.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
+[Download 400 MB](https://drive.softpedia.workers.dev/Soorarai%2520Pottru/Soorarai%2520Pottru%2520(2020)%2520400MB%2520%5BTentrockers%5D.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
 
-[Download 700 MB](https://drive.unblocked.workers.dev/Soorarai%2520Pottru/Soorarai%2520Pottru%2520(2020)%25201.3GB%2520%5BTentrockers%5D.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
+[Download 700 MB](https://drive.softpedia.workers.dev/Soorarai%2520Pottru/Soorarai%2520Pottru%2520(2020)%25201.3GB%2520%5BTentrockers%5D.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
 
-[Download 1.5 GB](https://drive.unblocked.workers.dev/Soorarai%2520Pottru/Soorarai%2520Pottru%2520(2020)%25201.3GB%2520%5BTentrockers%5D.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
+[Download 1.5 GB](https://drive.softpedia.workers.dev/Soorarai%2520Pottru/Soorarai%2520Pottru%2520(2020)%25201.3GB%2520%5BTentrockers%5D.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
 
 \=====================
 

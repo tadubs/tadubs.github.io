@@ -17,9 +17,9 @@ paginate: false
 
 \================
 
-[Download Server 1](https://drive.unblocked.workers.dev/(%2520Telegram%2520%40tadubs%2520)%2520Joker.2019.720p.BRRip.Tamil.Dub.Dual-Audio.x264-Tentrockers.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
+[Download Server 1](https://drive.softpedia.workers.dev/(%2520Telegram%2520%40tadubs%2520)%2520Joker.2019.720p.BRRip.Tamil.Dub.Dual-Audio.x264-Tentrockers.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
 
-[](https://drive.unblocked.workers.dev/(%2520Telegram%2520%40tadubs%2520)%2520Joker.2019.720p.BRRip.Tamil.Dub.Dual-Audio.x264-Tentrockers.mkv?rootId=0AJtZkTkXLBuYUk9PVA)================
+[](https://drive.softpedia.workers.dev/(%2520Telegram%2520%40tadubs%2520)%2520Joker.2019.720p.BRRip.Tamil.Dub.Dual-Audio.x264-Tentrockers.mkv?rootId=0AJtZkTkXLBuYUk9PVA)================
 
 
 

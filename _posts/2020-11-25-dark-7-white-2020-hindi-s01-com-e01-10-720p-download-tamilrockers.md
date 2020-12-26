@@ -40,25 +40,25 @@ image: /assets/img/uploads/dark-7-white.jpg
 
 <!--EndFragment-->
 
-Episode 01 - [Download](https://drive.unblocked.workers.dev/Drive%25207%2520White/Ep%25201%2520-%2520Sapne%2520Aur%2520Sex.mkv?rootId=0AAyZvpd9eEttUk9PVA)
+Episode 01 - [Download](https://drive.softpedia.workers.dev/Drive%25207%2520White/Ep%25201%2520-%2520Sapne%2520Aur%2520Sex.mkv?rootId=0AAyZvpd9eEttUk9PVA)
 
-Episode 02 - [Download](https://drive.unblocked.workers.dev/Drive%25207%2520White/Ep%252010%2520-%2520Gehra%2520Safed%2520Dark%2520White.mkv?rootId=0AAyZvpd9eEttUk9PVA)
+Episode 02 - [Download](https://drive.softpedia.workers.dev/Drive%25207%2520White/Ep%252010%2520-%2520Gehra%2520Safed%2520Dark%2520White.mkv?rootId=0AAyZvpd9eEttUk9PVA)
 
-Episode 03 - [Download](https://drive.unblocked.workers.dev/Drive%25207%2520White/Ep%25203%2520-%2520Friendship%2520Aur%2520French%2520Kiss.mkv?rootId=0AAyZvpd9eEttUk9PVA)
+Episode 03 - [Download](https://drive.softpedia.workers.dev/Drive%25207%2520White/Ep%25203%2520-%2520Friendship%2520Aur%2520French%2520Kiss.mkv?rootId=0AAyZvpd9eEttUk9PVA)
 
-Episode 04 - [Download](https://drive.unblocked.workers.dev/Drive%25207%2520White/Ep%25204%2520-%2520Real%2520Love%2520Aur%2520Real.mkv?rootId=0AAyZvpd9eEttUk9PVA)
+Episode 04 - [Download](https://drive.softpedia.workers.dev/Drive%25207%2520White/Ep%25204%2520-%2520Real%2520Love%2520Aur%2520Real.mkv?rootId=0AAyZvpd9eEttUk9PVA)
 
-Episode 05 - [Download](https://drive.unblocked.workers.dev/Drive%25207%2520White/Ep%25205%2520-%2520Nothing%2520In%2520Common.mkv?rootId=0AAyZvpd9eEttUk9PVA)
+Episode 05 - [Download](https://drive.softpedia.workers.dev/Drive%25207%2520White/Ep%25205%2520-%2520Nothing%2520In%2520Common.mkv?rootId=0AAyZvpd9eEttUk9PVA)
 
 --page-break--
 
-Episode 06 - [Download](https://drive.unblocked.workers.dev/Drive%25207%2520White/Ep%25206%2520-%2520Bad%2520Luck%2520Aur%2520Bad.mkv?rootId=0AAyZvpd9eEttUk9PVA)
+Episode 06 - [Download](https://drive.softpedia.workers.dev/Drive%25207%2520White/Ep%25206%2520-%2520Bad%2520Luck%2520Aur%2520Bad.mkv?rootId=0AAyZvpd9eEttUk9PVA)
 
-Episode 07 - [Download](https://drive.unblocked.workers.dev/Drive%25207%2520White/Ep%25207%2520-%2520Rajneeti%2520Aur%2520Sexneeti.mkv?rootId=0AAyZvpd9eEttUk9PVA)
+Episode 07 - [Download](https://drive.softpedia.workers.dev/Drive%25207%2520White/Ep%25207%2520-%2520Rajneeti%2520Aur%2520Sexneeti.mkv?rootId=0AAyZvpd9eEttUk9PVA)
 
-Episode 08 - [Download](https://drive.unblocked.workers.dev/Drive%25207%2520White/Ep%25208%2520-%2520Sex%2520Aur%2520Death.mkv?rootId=0AAyZvpd9eEttUk9PVA)
+Episode 08 - [Download](https://drive.softpedia.workers.dev/Drive%25207%2520White/Ep%25208%2520-%2520Sex%2520Aur%2520Death.mkv?rootId=0AAyZvpd9eEttUk9PVA)
 
-Episode 09 - [Download](https://drive.unblocked.workers.dev/Drive%25207%2520White/Ep%25209%2520-%2520A%2520Plan%2520For%2520Murder.mkv?rootId=0AAyZvpd9eEttUk9PVA)
+Episode 09 - [Download](https://drive.softpedia.workers.dev/Drive%25207%2520White/Ep%25209%2520-%2520A%2520Plan%2520For%2520Murder.mkv?rootId=0AAyZvpd9eEttUk9PVA)
 
 Episode 10 - Download
 

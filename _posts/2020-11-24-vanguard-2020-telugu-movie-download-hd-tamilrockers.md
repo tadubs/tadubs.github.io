@@ -16,6 +16,6 @@ image: /assets/img/uploads/28db548c1ad8b919b66e51f2908266dd.jpg
 
 \===========================
 
-[Download Server 1](https://files.isaiminiweb.online/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Vanguard%2520(2020)%2520%5BBDRip%2520-%2520Telugu%2520(Fan%2520Dub)%2520-%2520x264%2520-%2520MP3%2520-%2520400MB%5D.mkv?rootId=0ACyoBoGqNNHEUk9PVA)
+[Download Server 1](https://drive.softpedia.workers.dev/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Vanguard%2520(2020)%2520%5BBDRip%2520-%2520Telugu%2520(Fan%2520Dub)%2520-%2520x264%2520-%2520MP3%2520-%2520400MB%5D.mkv?rootId=0ACyoBoGqNNHEUk9PVA)
 
-[](https://files.isaiminiweb.online/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Vanguard%2520(2020)%2520%5BBDRip%2520-%2520Telugu%2520(Fan%2520Dub)%2520-%2520x264%2520-%2520MP3%2520-%2520400MB%5D.mkv?rootId=0ACyoBoGqNNHEUk9PVA)===========================
+[](https://drive.softpedia.workers.dev/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Vanguard%2520(2020)%2520%5BBDRip%2520-%2520Telugu%2520(Fan%2520Dub)%2520-%2520x264%2520-%2520MP3%2520-%2520400MB%5D.mkv?rootId=0ACyoBoGqNNHEUk9PVA)===========================

@@ -13,9 +13,9 @@ image: ""
 
 \=================
 
-[Download Server 1](https://files.isaiminiweb.online/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Maguva%2520(2020)%2520720p%2520Telugu%2520TRUE%2520WEB-DL%2520-%2520AVC%2520-%2520UNTOUCHED%2520-%2520AAC%2520-%2520590MB.mp4?rootId=0AJtZkTkXLBuYUk9PVA)
+[Download Server 1](https://drive.softpedia.workers.dev/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Maguva%2520(2020)%2520720p%2520Telugu%2520TRUE%2520WEB-DL%2520-%2520AVC%2520-%2520UNTOUCHED%2520-%2520AAC%2520-%2520590MB.mp4?rootId=0AJtZkTkXLBuYUk9PVA)
 
-[](https://files.isaiminiweb.online/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Maguva%2520(2020)%2520720p%2520Telugu%2520TRUE%2520WEB-DL%2520-%2520AVC%2520-%2520UNTOUCHED%2520-%2520AAC%2520-%2520590MB.mp4?rootId=0AJtZkTkXLBuYUk9PVA)=================
+[](https://drive.softpedia.workers.dev/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Maguva%2520(2020)%2520720p%2520Telugu%2520TRUE%2520WEB-DL%2520-%2520AVC%2520-%2520UNTOUCHED%2520-%2520AAC%2520-%2520590MB.mp4?rootId=0AJtZkTkXLBuYUk9PVA)=================
 
 
 

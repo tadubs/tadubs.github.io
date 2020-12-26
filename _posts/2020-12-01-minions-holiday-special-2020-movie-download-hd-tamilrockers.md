@@ -7,6 +7,6 @@ seotitle: Minions Holiday Special
 poster: https://extraimages.net/images/2020/12/01/mhs.jpg
 size: 400MB
 year: "2020"
-link1: https://files.isaiminiweb.online/Minions/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Minions%2520Holiday%2520Special%2520(2020)%2520English%2520HDRip%2520-%25201080p%2520-%2520x264%2520-%2520360MB%2520-%2520ESub.mkv?rootId=0AHzkXsroNfDlUk9PVA
-link2: https://drive.unblocked.workers.dev/Minions/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Minions%2520Holiday%2520Special%2520(2020)%2520English%2520HDRip%2520-%25201080p%2520-%2520x264%2520-%2520360MB%2520-%2520ESub.mkv?rootId=0AHzkXsroNfDlUk9PVA
+link1: https://drive.softpedia.workers.dev/Minions/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Minions%2520Holiday%2520Special%2520(2020)%2520English%2520HDRip%2520-%25201080p%2520-%2520x264%2520-%2520360MB%2520-%2520ESub.mkv?rootId=0AHzkXsroNfDlUk9PVA
+link2: https://drive.softpedia.workers.dev/Minions/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Minions%2520Holiday%2520Special%2520(2020)%2520English%2520HDRip%2520-%25201080p%2520-%2520x264%2520-%2520360MB%2520-%2520ESub.mkv?rootId=0AHzkXsroNfDlUk9PVA
 ---

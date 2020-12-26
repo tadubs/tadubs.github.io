@@ -15,11 +15,11 @@ image: /assets/img/uploads/thee.jpg
 
 \=====================
 
-[Download in 400 MB](https://files.isaiminiweb.online/Theeviram/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Theeviram%2520(2020)%2520Tamil%2520HDRip%2520-%2520400MB%2520-%2520x264%2520-%2520MP3.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
+[Download in 400 MB](https://drive.softpedia.workers.dev/Theeviram/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Theeviram%2520(2020)%2520Tamil%2520HDRip%2520-%2520400MB%2520-%2520x264%2520-%2520MP3.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
 
-[Download in 700 MB](https://files.isaiminiweb.online/Theeviram/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Theeviram%2520(2020)%2520Tamil%2520HDRip%2520-%2520700MB%2520-%2520x264%2520-%2520MP3%2520-%2520ESub.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
+[Download in 700 MB](https://drive.softpedia.workers.dev/Theeviram/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Theeviram%2520(2020)%2520Tamil%2520HDRip%2520-%2520700MB%2520-%2520x264%2520-%2520MP3%2520-%2520ESub.mkv?rootId=0AJtZkTkXLBuYUk9PVA)
 
-[](https://files.isaiminiweb.online/Theeviram/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Theeviram%2520(2020)%2520Tamil%2520HDRip%2520-%2520700MB%2520-%2520x264%2520-%2520MP3%2520-%2520ESub.mkv?rootId=0AJtZkTkXLBuYUk9PVA)=====================
+[](https://drive.softpedia.workers.dev/Theeviram/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Theeviram%2520(2020)%2520Tamil%2520HDRip%2520-%2520700MB%2520-%2520x264%2520-%2520MP3%2520-%2520ESub.mkv?rootId=0AJtZkTkXLBuYUk9PVA)=====================
 
 Keywords:
 

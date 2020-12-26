@@ -18,6 +18,6 @@ image: /assets/img/uploads/mv5bymyymdfiotgtmzkwos00otu1ltg5ogitm2q5mjcynzc5mdjkx
 
 \====================
 
-[Download Single Part](https://drive.unblocked.workers.dev/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Naxalbari%2520(2020)%2520Hindi%2520HDRip%2520S01%2520EP%2520(01-09)%2520-%2520x264%2520-%2520MP3%2520-%2520700MB%2520-%2520ESub.mkv?rootId=0AAyZvpd9eEttUk9PVA)
+[Download Single Part](https://drive.softpedia.workers.dev/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Naxalbari%2520(2020)%2520Hindi%2520HDRip%2520S01%2520EP%2520(01-09)%2520-%2520x264%2520-%2520MP3%2520-%2520700MB%2520-%2520ESub.mkv?rootId=0AAyZvpd9eEttUk9PVA)
 
-[](https://drive.unblocked.workers.dev/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Naxalbari%2520(2020)%2520Hindi%2520HDRip%2520S01%2520EP%2520(01-09)%2520-%2520x264%2520-%2520MP3%2520-%2520700MB%2520-%2520ESub.mkv?rootId=0AAyZvpd9eEttUk9PVA)====================
+[](https://drive.softpedia.workers.dev/(%2520Telegram%2520%40isaiminidownload%2520)%2520-%2520Naxalbari%2520(2020)%2520Hindi%2520HDRip%2520S01%2520EP%2520(01-09)%2520-%2520x264%2520-%2520MP3%2520-%2520700MB%2520-%2520ESub.mkv?rootId=0AAyZvpd9eEttUk9PVA)====================
