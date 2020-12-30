@@ -11,7 +11,7 @@ seadi:
     url: https://tamilrockers.jrmedia.workers.dev/GOT/Game.of.Thrones.SEASON.01.S01.COMPLETE.720p.10bit.BluRay.2CH.x265.HEVC-PSA/Game.of.Thrones.S01E02.720p.10bit.BluRay.2CH.x265.HEVC-PSA.mkv
   - title: 3 "Lord Snow" (463 MB)
     url: https://tamilrockers.jrmedia.workers.dev/GOT/Game.of.Thrones.SEASON.01.S01.COMPLETE.720p.10bit.BluRay.2CH.x265.HEVC-PSA/Game.of.Thrones.S01E03.Lord.Snow.720p.10bit.BluRay.2CH.x265.HEVC-PSA.mkv
-  - title: 4 "Cripples, Bastards, and Broken Things" ()
+  - title: 4 "Cripples, Bastards, and Broken Things" (446 MB)
     url: https://tamilrockers.jrmedia.workers.dev/GOT/Game.of.Thrones.SEASON.01.S01.COMPLETE.720p.10bit.BluRay.2CH.x265.HEVC-PSA/Game.of.Thrones.S01E04.720p.10bit.BluRay.2CH.x265.HEVC-PSA.mkv
   - title: 5 "The Wolf and the Lion" (460 MB)
     url: https://tamilrockers.jrmedia.workers.dev/GOT/Game.of.Thrones.SEASON.01.S01.COMPLETE.720p.10bit.BluRay.2CH.x265.HEVC-PSA/Game.of.Thrones.S01E05.720p.10bit.BluRay.2CH.x265.HEVC-PSA.mkv
