@@ -2,8 +2,8 @@
 date: 2021-01-02 19:10:39
 layout: movie
 category: movie
-title: Psycho (2020) Movie Download HD Tamilrockers Moviesda
-seotitle: Psycho (2020)
+title: Naadodigal 2 (2020) Movie Download HD Tamilrockers Moviesda
+seotitle: Naadodigal 2 (2020)
 poster: //luvaihoo.com/afu.php?zoneid=3785595
 size: 500 MB
 year: "2020"
