@@ -2,7 +2,7 @@
 date: 2021-01-02 19:00:23
 layout: movie
 category: movie
-title: Mamangam (2019) Movie Download HD Tamilrockers Moivesda
+title: Mamangam (2019) Movie Download HD Tamilrockers Moviesda
 seotitle: Mamangam (2019)
 poster: //luvaihoo.com/afu.php?zoneid=3785595
 size: 500 MB
