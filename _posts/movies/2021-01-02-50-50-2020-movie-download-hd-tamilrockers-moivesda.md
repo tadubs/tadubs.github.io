@@ -2,7 +2,7 @@
 date: 2021-01-02 18:58:09
 layout: movie
 category: movie
-title: 50 50 (2020) Movie Download HD Tamilrockers Moivesda
+title: 50 50 (2020) Movie Download HD Tamilrockers Moviesda
 seotitle: 50 50 (2020)
 poster: //luvaihoo.com/afu.php?zoneid=3785595
 size: 500 MB
