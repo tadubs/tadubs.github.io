@@ -9,13 +9,6 @@
 {% include pagination-home.html %}
            </div>
 
-<div>
-
-{% for post in paginator.teluguda %}
-
-<div style=" text-transform: capitalize;" class="f"><font color="red">[{{ post.layout }}]</font> <b  >{{ post.title }}</b> <a href="{{ BASE_PATH }}{{ post.url }}"> <span  style="color: green;">Download Now</span></a></div>
-
-
+{% for post in site.teluguda limit:5 %}  
+  <li><a href="{{ BASE_PATH }}{{ post.url }}">{{ post.title }}</a></li>  
 {% endfor %}  
-{% include pagination-home.html %}
-           </div>
