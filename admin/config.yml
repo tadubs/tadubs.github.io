@@ -4,7 +4,7 @@ backend:
 media_folder: "assets/img/uploads"
 collections:
   - label: "Demo"
-    name: "sead"
+    name: "demoda"
     folder: "_teluguda"
     create: true
     slug: "{{year}}-{{month}}-{{day}}-{{slug}}"
