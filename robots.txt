@@ -5,4 +5,5 @@ Disallow: /sitemap.xml
 Allow: /category
 Allow: /
 
-Sitemap: https://hd.isaiminiweb.online/sitemap.xml
+Sitemap: https://wwww.isaiminiweb.online/sitemap.xml
+Sitemap: https://wwww.isaiminiweb.online/news-sitemap.xml
