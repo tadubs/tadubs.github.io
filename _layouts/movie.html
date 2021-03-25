@@ -44,7 +44,7 @@
     <meta name="twitter:card" content="summary_large_image">
     <meta name="twitter:title" content="{{ title }}">
     <meta name="twitter:description" content="{{ description }}">
-    <meta property="twitter:image:src" content="{{ page.poster }}">
+    <meta property="twitter:image:src" content="{{ page.poster }}{{ page.image }}">
     {% if site.twitter_username %}
         <meta name="twitter:site" content="@{{ site.twitter_username }}">
     {% endif %}
@@ -52,7 +52,7 @@
     <!-- Social: Facebook / Open Graph -->
     <meta property="og:url" content="{{ url }}">
     <meta property="og:title" content="{{ title }}">
-    <meta property="og:image" content="{{ page.poster }}">
+    <meta property="og:image" content="{{ page.poster }}{{ page.image }}">
     <meta property="og:description" content="{{ description }}">
     <meta property="og:site_name" content="{{ site.title }}">
 
@@ -97,7 +97,7 @@
 
   <div class="isai" align="left">
     <div class="pr">
-    <img style="margin-left: 7px;" typeof="foaf:Image" src="{{ page.poster }}" width="30%" height="auto" alt="{{ page.seotitle }}" title="{{ page.seotitle }}" class="tbl"/>
+    <img style="margin-left: 7px;" typeof="foaf:Image" src="{{ page.poster }}{{ page.image }}" width="30%" height="auto" alt="{{ page.seotitle }}" title="{{ page.seotitle }}" class="tbl"/>
 
      <table cellspacing="5">
 
