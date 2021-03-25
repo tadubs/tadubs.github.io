@@ -115,8 +115,11 @@ collections:
         default: "movie"
       - label: "Category"
         name: "category"
-        widget: "hidden"
-        default: "movie"
+        widget: "relation"
+        collection: "categories"
+        searchFields: ["title"]
+        valueField: "slug"
+        displayFields: ["title"]
       - label: "Name"
         name: "title"
         widget: "string"
