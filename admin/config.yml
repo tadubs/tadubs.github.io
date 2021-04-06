@@ -113,13 +113,6 @@ collections:
         name: "layout"
         widget: "hidden"
         default: "movie"
-      - label: "Category"
-        name: "category"
-        widget: "relation"
-        collection: "categories"
-        searchFields: ["title"]
-        valueField: "slug"
-        displayFields: ["title"]
       - label: "Name"
         name: "title"
         widget: "string"
